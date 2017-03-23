@@ -271,10 +271,9 @@ Always charge for your work on a daily basis.
 Rate per project will lead to working much more than you anticipated, because the scope of the project will definitely grow. 
 Hourly rates will lead to nonsensical time tracking minutia.
 
-If you don't know any friends who could advise you on this topic, there are [websites](http://www.contractorcalculator.co.uk) that help you calculate the  contracting rates for the full time salary you're getting. 
+If you don't know any friends who could advise you on this topic, there are [websites](http://www.contractorcalculator.co.uk) that help you calculate the contracting rates for the full time salary you're getting. Look for a good take home pay contractor [calculator](https://www.churchill-knight.co.uk/calculator) tool on on a specialised contractor accountant website for an immediate way of working out what kind of financial return you would be getting as a contractor.
 A good rule of thumb is to multiply the equivalent daily rate by at least 1.5. 
-You may need to adjust it depending on the current [situation in the market](http://www.itjobswatch.co.uk/contract.aspx). 
-You may also need to ask for less for your first contract and then raise it as you gain confidence and grow your clientele.
+You may need to adjust it depending on the current [situation in the market](http://www.itjobswatch.co.uk/contract.aspx).You may also need to ask for less for your first contract and then raise it as you gain confidence and grow your clientele.
 
 
 ### IR35
